@@ -1,2 +1,2 @@
 # AssalamoAllaikum
-greetings
+greetings for not only muslims but for everyone.
